@@ -1,4 +1,4 @@
-## Hi there 👋
+## Howdy! 👋
 
 I am currently a first year MBBS student at AIIMS Bhubaneswar, India
 
